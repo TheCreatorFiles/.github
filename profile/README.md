@@ -1,5 +1,5 @@
 ## Hi there 👋
-I am the "Great I Am"
+I am the Great "I Am"
 <!--
 
 **Here are some ideas to get you started:**

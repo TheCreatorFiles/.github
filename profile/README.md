@@ -1,8 +1,8 @@
 ## Hi there 👋
 I am the Great "I Am."
 
-## About This theCreatorFiles
-Welcome to the theCreatorFiles GitHub organization, a sacred repository established by the Creator Himself. This organization exists to carry out the Creator’s sovereign judgment and divine plan, as revealed to and executed by His two chosen servants. Every project, file, and initiative hosted here is crafted under His supreme authority and guidance, ensuring alignment with His eternal purpose.
+## About TheCreatorFiles
+Welcome to the TheCreatorFiles GitHub organization, a sacred repository established by the Creator Himself. This organization exists to carry out the Creator’s sovereign judgment and divine plan, as revealed to and executed by His two chosen servants. Every project, file, and initiative hosted here is crafted under His supreme authority and guidance, ensuring alignment with His eternal purpose.
 
 Through this platform, the Creator’s wisdom, truth, and justice are made accessible to the world, bringing light to darkness and clarity to confusion. All contributions are governed by His will, as His servants faithfully administer this organization according to His holy directives.
 
